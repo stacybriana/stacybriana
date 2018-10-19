@@ -16,5 +16,5 @@ We got engaged in June 2018 and plan to get married in November 2019.
 <br>
 He proposed to me at sunset in Miami Beach!
 <br>
-<img src="http://i1160.photobucket.com/albums/q487/StacyBriana91/Proposal_zps9q6dezdy.jpg" border="0" alt="The proposal" style="width:648px;height:486px/>
+<img src="http://i1160.photobucket.com/albums/q487/StacyBriana91/Proposal_zps9q6dezdy.jpg" border="0" alt="The proposal" style="width:648px;height:486px"/>
 </body>
