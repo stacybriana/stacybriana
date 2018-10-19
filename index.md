@@ -16,12 +16,4 @@ We are currently both in grad school at UCF and plan to graduate in December of 
 <img src="http://i1160.photobucket.com/albums/q487/StacyBriana91/31e22f76-9ddb-47bd-891a-7fb7049c8745_zpsdkkbijxc.jpg" border="0" alt="Stacy and Juan at the UCF Reflection Pond" style="width:648px;height:486px"/>
 <br>
 <br>
-We got engaged in June 2018 and plan to get married in November 2019.
-<br>
-He proposed to me at sunset in Miami Beach!
-<br>
-<br>
-<img src="http://i1160.photobucket.com/albums/q487/StacyBriana91/Proposal_zps9q6dezdy.jpg" border="0" alt="The proposal" style="width:648px;height:486px"/>
-<br>
-<br>
 Please poke around the site to learn more about me and see some of my work.
