@@ -12,6 +12,7 @@ layout: default
 <br>
 We are currently both studying at UCF and plan to graduate in December of 2019.
 <br>
+<br>
 <img src="http://i1160.photobucket.com/albums/q487/StacyBriana91/31e22f76-9ddb-47bd-891a-7fb7049c8745_zpsdkkbijxc.jpg" border="0" alt="Stacy and Juan at the UCF Reflection Pond" style="width:648px;height:486px"/>
 <br>
 <br>
